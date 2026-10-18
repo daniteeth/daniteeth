@@ -5,20 +5,22 @@
 sp6ing it
 
 <details>
-  <summary>: me$$</summary>
+  <summary>: me</summary>
   <br>
-hi
-  he/her/theirs non-binary
-  6ixteen
-  call me tyzu, dani or seb
+  <p>hi</p>
+  <p>he/her/theirs non-binary
+  <p>6ixteen
+  <p>call me tyzu, dani or seb
   </details>
 
+<p>
+  
   <details>
   <summary>: fandoms/communities</summary>
   <br>
-dandys world, tadc, typology,
- meeleniacs, hfjone, pressure (dont support the creator) 
-  knights of guinevere, sfawtde/dawtde, mcyt
+<p>dandys world, tadc, typology,
+ <p>meeleniacs, hfjone, pressure (dont support the creator) 
+  <p>knights of guinevere, sfawtde/dawtde, mcyt
  </details>
 
  <details>
