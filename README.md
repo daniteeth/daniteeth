@@ -2,12 +2,17 @@
 
 <div align="center">
 
+<img width="250" height="188" alt="tumblr_28d887512774460193cfc8942cf642a1_38c984e6_250" src="https://github.com/user-attachments/assets/9b459d6f-bfc7-48a5-b99d-bd4b153805d4" />
 
-
+hel lo
+<p>mostly on ponytown wiht the cainsp6 skin
   
 <p><img width="100" height="100" alt="2977167_d3963" src="https://github.com/user-attachments/assets/b2d382a7-4f55-4434-a34d-78a87b9f2bd0" />
 
 sp6ing it
+
+<img width="2048" height="154" alt="tumblr_521023b1c5c60f42be8a53c53c37fb6e_e94e0c91_2048" src="https://github.com/user-attachments/assets/b0c46959-3bd2-4697-93cc-802d04013bec" />
+
 
 <details>
   <summary>: me</summary>
@@ -62,6 +67,14 @@ sp/sx 693
 <img width="99" height="56" alt="tumblr_9db236e659f8e1e2beb538326d618b93_ae93df7e_100" src="https://github.com/user-attachments/assets/150315e8-23eb-4aab-87b2-54685ae96216" />
 <img width="100" height="51" alt="tumblr_5d1f6254516820659b6ac47ed996d38e_9a3f2800_100" src="https://github.com/user-attachments/assets/c233f15e-fca7-4eb6-ba11-001daf17f9b0" />
 <img width="100" height="59" alt="tumblr_5aecb4b08d0a66fca17d80a1366f1319_43150bbf_250" src="https://github.com/user-attachments/assets/9ba7cb1f-8e76-4940-b8a5-2ff6254eaea3" />
+<img width="99" height="56" alt="tumblr_1eb7a87992ec1cc139058d635014808c_a7d29fe1_100" src="https://github.com/user-attachments/assets/4d30213d-97f8-476c-ab42-886dc858bc6b" />
+<img width="99" height="56" alt="tumblr_0b7b02f41e714e939b7bd17176ca62f0_eb5b36a8_100" src="https://github.com/user-attachments/assets/e7a87250-8a54-462f-918e-13a21795f17e" />
+<img width="99" height="56" alt="tumblr_2972cf1b384323b5278100aeb891675e_95f33f4d_100" src="https://github.com/user-attachments/assets/dfff338b-2b5d-4f6c-b6a8-5bc5849b8a65" />
+<img width="99" height="56" alt="tumblr_36b632e2757495c867cb71eed166adcd_845bab9a_100" src="https://github.com/user-attachments/assets/8af7cb0c-193c-4d1a-8213-54739b34ec75" />
+<img width="99" height="56" alt="tumblr_8884b5800d5ec2046dbabdf66be46082_91b84a31_100" src="https://github.com/user-attachments/assets/4da3bef8-8d81-4be3-847c-b78b134d41cf" />
+
+
+
 
 stamps wow look at this magnificent stamp collection
 
