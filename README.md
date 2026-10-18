@@ -19,7 +19,9 @@ sp6ing it
 
 <img width="2048" height="154" alt="tumblr_521023b1c5c60f42be8a53c53c37fb6e_e94e0c91_2048" src="https://github.com/user-attachments/assets/b0c46959-3bd2-4697-93cc-802d04013bec" />
 
-
+<table>
+  <tr>
+    <th>
 <details>
   <summary>: me</summary>
   <br>
@@ -54,8 +56,18 @@ sp6ing it
   <summary>: dni</summary> 
     pressure supporters, maga, pedo, zoo, transphobics, racists, ableists, anyone whos just really funky and weird in general. ship discourse must also not be mentioned infront of me 
     </details>
+</th>
+</tr>
+</table>
 
+<table>
+  <tr>
+    <th>
 <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/978167de-233a-4abe-9ef4-f11fdbff1ac4" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/1e0e3c4d-d8e6-4497-a37c-393174f759d6" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/9085a2de-7e18-47ab-b19a-77ed79ab4c1a" />
+</th>
+</tr>
+</table>
+
 
 <table>
   <tr>
@@ -65,6 +77,10 @@ sp/sx 693
 </tr>
 </table>
 
+
+<table>
+  <tr>
+    <th>
 <img width="99" height="56" alt="tumblr_47011718e1aecf84f1ae3e2a76e29757_d21632b4_100" src="https://github.com/user-attachments/assets/f84fb544-6e18-4368-8538-f948a6ce2577" />
 <img width="99" height="56" alt="tumblr_b8e3c2f94dca573f1aa5fd8178a0c6e0_91907e1d_100" src="https://github.com/user-attachments/assets/3a5818f1-034f-4142-8710-de3b35588fbd" />
 <img width="100" height="59" alt="tumblr_b84aedeadfc847e60fdf0e5f4263f2f4_0583db71_100" src="https://github.com/user-attachments/assets/06b5d899-1888-42f2-9f2d-6a8329e9493a" />
@@ -82,7 +98,9 @@ sp/sx 693
 <img width="99" height="56" alt="tumblr_2972cf1b384323b5278100aeb891675e_95f33f4d_100" src="https://github.com/user-attachments/assets/dfff338b-2b5d-4f6c-b6a8-5bc5849b8a65" />
 <img width="99" height="56" alt="tumblr_36b632e2757495c867cb71eed166adcd_845bab9a_100" src="https://github.com/user-attachments/assets/8af7cb0c-193c-4d1a-8213-54739b34ec75" />
 <img width="99" height="56" alt="tumblr_8884b5800d5ec2046dbabdf66be46082_91b84a31_100" src="https://github.com/user-attachments/assets/4da3bef8-8d81-4be3-847c-b78b134d41cf" />
-
+</th>
+</tr>
+</table>
 
 
 
