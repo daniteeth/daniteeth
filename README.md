@@ -4,12 +4,21 @@
 sp6ing it
 
 <details>
-  <summary>me</summary>
+  <summary>: me</summary>
   <br>
 hi
+  he/her/theirs non-binary
+  6ixteen
+  call me tyzu, dani or seb
   </details>
 
-
+  <details>
+  <summary>: fandoms/communities</summary>
+  <br>
+dandys world, tadc, typology,
+meeleniacs, hfjone, pressure (dont support the creator) 
+knights of guinevere
+ </details>
 
 
 </div>
