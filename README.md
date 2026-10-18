@@ -4,8 +4,14 @@
 
 <img width="250" height="188" alt="tumblr_28d887512774460193cfc8942cf642a1_38c984e6_250" src="https://github.com/user-attachments/assets/9b459d6f-bfc7-48a5-b99d-bd4b153805d4" />
 
-hel lo
-<p>mostly on ponytown wiht the cainsp6 skin
+<table>
+  <tr>
+    <th>
+hel lo.
+mostly on ponytown wiht the cainsp6 skin
+</th>
+</tr>
+</table>
   
 <p><img width="100" height="100" alt="2977167_d3963" src="https://github.com/user-attachments/assets/b2d382a7-4f55-4434-a34d-78a87b9f2bd0" />
 
@@ -21,39 +27,51 @@ sp6ing it
   <p>he/her/theirs non-binary <img width="15" height="15
 " alt="tumblr_osmriqcjPb1w3gt6to2_400" src="https://github.com/user-attachments/assets/3987f9c8-604d-410e-a5c2-3d1e33fc6b2b" />
 <img width="15" height="15" alt="1b7f3b3e8ded4ec" src="https://github.com/user-attachments/assets/b14e2c53-e863-4819-93b6-b3761d84afe7" />
-
   <p>6ixteen
   <p>call me tyzu, dani or seb
+     
   </details>
 
 <p>
   
-  <details>
+<details>
   <summary>: fandoms/communities</summary>
   <br>
 <p>dandys world, tadc, typology,
  <p>meeleniacs, hfjone, pressure (dont support the creator) 
   <p>knights of guinevere, sfawtde/dawtde, mcyt
- </details>
+    </details>
 
- <details>
+<details>
   <summary>: kins/comfort characters</summary>
-  <br>
+<br>
    caine (TADC), avery(SFAWTDE), teagan(DW), gwen(KOG), golden cheese cookie
 (CRK), liam plecak(HFJONE)
     </details>
 
-  <details>
+
+<details>
   <summary>: dni</summary>
   <br>
-       pressure supporters, maga, pedo, zoo, transphobics, racists, ableists, anyone whos just really funky and weird in general. ship discourse must also not be mentioned infront of me 
+     <table>
+  <tr>
+    <th> 
+    pressure supporters, maga, pedo, zoo, transphobics, racists, ableists, anyone whos just really funky and weird in general. ship discourse must also not be mentioned infront of me 
+    </th>
+</tr>
+</table>
     </details>
     
 
 <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/978167de-233a-4abe-9ef4-f11fdbff1ac4" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/1e0e3c4d-d8e6-4497-a37c-393174f759d6" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/9085a2de-7e18-47ab-b19a-77ed79ab4c1a" />
 
+<table>
+  <tr>
+    <th>
 sp/sx 693
-
+</th>
+</tr>
+</table>
 
 <img width="99" height="56" alt="tumblr_47011718e1aecf84f1ae3e2a76e29757_d21632b4_100" src="https://github.com/user-attachments/assets/f84fb544-6e18-4368-8538-f948a6ce2577" />
 <img width="99" height="56" alt="tumblr_b8e3c2f94dca573f1aa5fd8178a0c6e0_91907e1d_100" src="https://github.com/user-attachments/assets/3a5818f1-034f-4142-8710-de3b35588fbd" />
