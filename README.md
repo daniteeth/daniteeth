@@ -49,6 +49,10 @@ sp6so9sx3
 
 <img width="101" height="57" alt="tumblr_f40e426cdcf1d1d91af224a5fcf1918a_aa414df2_250" src="https://github.com/user-attachments/assets/65541d29-d8b1-428f-b069-3d2e4cf14a2f" />
 
-
-
+<details>
+  <summary>hey just a reminder</summary>
+  <br>
+  i only relate to caine i do not yumeship with caine i am not a yumeshipper however i use caine as my self insert
+</details>
+  
 </div>
