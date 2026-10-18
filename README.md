@@ -27,6 +27,8 @@ sp6ing it
   <summary>: kins</summary>
   <br>
    caine, avery, teagan, gwen
+   
+
     </details>
 
 <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/978167de-233a-4abe-9ef4-f11fdbff1ac4" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/1e0e3c4d-d8e6-4497-a37c-393174f759d6" /> <img width="139" height="79" alt="image" src="https://github.com/user-attachments/assets/9085a2de-7e18-47ab-b19a-77ed79ab4c1a" />
