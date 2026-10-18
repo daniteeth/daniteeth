@@ -39,7 +39,7 @@ sp6ing it
   <details>
   <summary>: dni</summary>
   <br>
-  pressure supporters, maga, pedo, zoo, transphobics, racists, ableists, anyone whos just really funky and weird in general. ship discourse must also not be mentioned infront of me
+       pressure supporters, maga, pedo, zoo, transphobics, racists, ableists, anyone whos just really funky and weird in general. ship discourse must also not be mentioned infront of me 
     </details>
     
 
