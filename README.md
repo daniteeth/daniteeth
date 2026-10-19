@@ -9,7 +9,8 @@
   <tr>
     <th>
 hel lo.<br>
-      mostly on ponytown wiht the cainsp6 skin
+      mostly on ponytown wiht the cainsp6 skin wow
+      active on tiktok :D
 </th>
 </tr>
 </table>
@@ -29,7 +30,7 @@ sp6ing it
   <summary>: me</summary>
   <br>
   <p>hi</p<br>
-  <p>he/her/theirs non-binary <img width="15" height="15
+  <p>he/they/himself non-binary <img width="15" height="15
 " alt="tumblr_osmriqcjPb1w3gt6to2_400" src="https://github.com/user-attachments/assets/3987f9c8-604d-410e-a5c2-3d1e33fc6b2b" />
 <img width="15" height="15" alt="1b7f3b3e8ded4ec" src="https://github.com/user-attachments/assets/b14e2c53-e863-4819-93b6-b3761d84afe7" /> <br>
   <p>6ixteen <br>
@@ -115,7 +116,7 @@ wait
 <details>
   <summary>HEY BEFORE I FORGET YOU CAN READ THIS</summary>
   <br>
-  <p>i use caine as my self insert.<br> i am not that social unless i am with my mutuals<br> might say threats when im overwhelmed, sorry in advance
+  <p>i use caine as my self insert. however he is only my comfort character<br> i am not that social unless i am with my mutuals<br> im kind!!!!! yes!!! but as i said not as social! pls interact!
 </details>
 
 <img width="60" height="60" alt="tumblr_d45d2446c6cca4598e613a3af6015023_3576f3a8_75" src="https://github.com/user-attachments/assets/583cbb8f-2604-40e7-ba0b-28587011f7c7" />
