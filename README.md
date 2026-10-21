@@ -9,7 +9,7 @@
   <tr>
     <th>
 hel lo.<br>
-      mostly on ponytown wiht the cainsp6 skin wow
+      mostly on ponytown wiht the cainsp6 skin<br>
       active on tiktok :D
 </th>
 </tr>
@@ -21,7 +21,9 @@ https://daniteeth.atabook.org <br>tis be my atabook. sign it NOW/nf
 
 sp6ing it
 
-<img width="2048" height="154" alt="tumblr_521023b1c5c60f42be8a53c53c37fb6e_e94e0c91_2048" src="https://github.com/user-attachments/assets/b0c46959-3bd2-4697-93cc-802d04013bec" />
+
+
+### ABOUT :: <img width="78" height="96" alt="image" src=https://file.garden/atkonYPigdXdqgng/pony-town-cainsp6%20enneasona%20cainesona-sit-shadow-16x.png />
 
 <table>
   <tr>
@@ -29,12 +31,12 @@ sp6ing it
 <details>
   <summary>: me</summary>
   <br>
-  <p>hi</p<br>
-  <p>he/they/himself non-binary <img width="15" height="15
+  hi<br>
+  he/they/himself non-binary <img width="15" height="15
 " alt="tumblr_osmriqcjPb1w3gt6to2_400" src="https://github.com/user-attachments/assets/3987f9c8-604d-410e-a5c2-3d1e33fc6b2b" />
-<img width="15" height="15" alt="1b7f3b3e8ded4ec" src="https://github.com/user-attachments/assets/b14e2c53-e863-4819-93b6-b3761d84afe7" /> <br>
-  <p>6ixteen <br>
-  <p>call me tyzu, dani or seb
+<img width="15" height="15" alt="1b7f3b3e8ded4ec" src="https://github.com/user-attachments/assets/b14e2c53-e863-4819-93b6-b3761d84afe7" /><br>
+  6ixteen<br>
+  <p>call me tyzu, dani or seb<br>
      
   </details>
 
@@ -43,9 +45,9 @@ sp6ing it
 <details>
   <summary>: fandoms/communities</summary>
   <br>
-<p>dandys world, tadc, typology,
- <p>meeleniacs, hfjone, pressure (dont support the creator) 
-  <p>knights of guinevere, sfawtde/dawtde, mcyt
+<p>dandys world, tadc, typology,<br>
+ meeleniacs, hfjone, pressure (dont support the creator)<br>
+  knights of guinevere, sfawtde/dawtde, mcyt<br>
     </details>
 
 <details>
@@ -63,6 +65,8 @@ sp6ing it
 </th>
 </tr>
 </table>
+
+
 
 <table>
   <tr>
@@ -108,7 +112,7 @@ sp/sx 693
 
 
 
-stamps wow look at this magnificent stamp collection<br>
+caine<br>
 wait
 
 
