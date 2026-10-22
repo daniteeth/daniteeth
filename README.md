@@ -22,15 +22,16 @@ https://daniteeth.atabook.org <br>https://daniteeth.straw.page<br>wow hi sign th
 
 
 
-### ABOUT :: 
+## ABOUT :: 
 
-<img align="right" width="296" height="416" alt="boy he be dancing" src="https://file.garden/atkonYPigdXdqgng/pony-town-cainsp6%20enneasona%20cainesona-dance-1-b-blinking-8x.gif" />
+<img align="right" width="148" height="208" alt="boy he be dancing" src="https://file.garden/atkonYPigdXdqgng/pony-town-cainsp6%20enneasona%20cainesona-dance-1-b-blinking-8x.gif" />
 
 
 <table>
   <tr>
     <!-- LEFT COLUMN: LOCKED IMAGE SIZE -->
     <td  align="center" width="200" valign="middle">
+      <img src="https://github.com/user-attachments/assets/368efcde-885b-4bb5-a8fc-9bfe11398c1d" />
       <div align="center">
 
 
