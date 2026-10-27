@@ -34,10 +34,8 @@ I'm not fond of gifting.<br>
 <details>
   <summary>comf/kins</summary>
 
-<sub>text in italics+bold=kin.</sub><br>
-
 ┈┈・ ✦ ・┈┈<br>
-***Caine***, ***Avery***, Tisha, Teardrop, First Milk Cookie, Ralsei, Four, Squiddo, Queenie //
+***Caine***, ***Avery***, Tisha, Teardrop, First Milk Cookie, Ralsei, Four, Squiddo, Queenie, Astro, Soulvester, Marceline, Martian //
 love em all <3 please dont use these characters against me.<br>
 ┈┈・ ✦ ・┈┈
 
