@@ -20,9 +20,9 @@
 <details>
   <summary>byi</summary>
   ┈┈・ ✦ ・┈┈
-  
-W2I Sometimes. C+H permitted unless *Kinger*.<br>
-Discomforted with K.<br>
+Caine. I'm a heavy Caine fictionkin..<br>
+  I ship RoyalTeeth.<br>
+  Discomfort from Caine kindoubles. IWC, may interact.<br>
 Online by SAT-SUN, probably<br>
 Yumeshippers may interact!!!<br>
 I'm not fond of gifting.<br>
@@ -56,6 +56,7 @@ Caine ***Fictionkin***
 ***TADC***, Typology, Dandys World<br>
  Meeleniacs, HFJOne, Pressure (dont support the creator)<br>
   Knights of Guinevere, AWTDE, Block Tales<br>
+   Fact Attack Adventures, Mairuma<br>
   
   ┈┈・ ✦ ・┈┈
 
