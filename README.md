@@ -19,7 +19,7 @@
 
 <details>
   <summary>byi</summary>
-  ┈┈・ ✦ ・┈┈
+  ┈┈・ ✦ ・┈┈<br>
 Caine. I'm a heavy Caine fictionkin..<br>
   I ship RoyalTeeth.<br>
   Discomfort from Caine kindoubles. IWC, may interact.<br>
