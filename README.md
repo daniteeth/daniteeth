@@ -2,6 +2,8 @@
 <div align=center>
   
   ![](https://komarev.com/ghpvc/?username=daniteeth&style=plastic&label=✴︎&color=0047AB)
+
+  
   
 <img width="649"  alt="Untitled design-no-bg (1)" src="https://file.garden/atkonYPigdXdqgng/Untitled%20design-no-bg%20(1)-Photoroom.png" /><br>
 
@@ -79,5 +81,7 @@ I have *no* DNI. Anyone can interact as long as they aren't rude. I freely block
 </th>
 </tr>
 </table>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315nvnrrgyc4lidodagevsoogp4y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=22317c&interchange=false&profanity=false&hide_remaster=false&bar_color=2024ac&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 </div>
